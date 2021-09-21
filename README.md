@@ -1,4 +1,4 @@
-### Our Price:
+### Our Price for QQ Accounts:
 
 ```text
 2年     70
